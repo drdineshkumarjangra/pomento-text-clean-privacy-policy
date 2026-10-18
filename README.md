@@ -1,0 +1,1 @@
+# pomento-text-clean-privacy-policy
